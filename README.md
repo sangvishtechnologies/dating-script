@@ -4,7 +4,7 @@ In the ever-changing environment of online interactions, organizations are conti
 
 Let's delve into a few key explanations that highlight how dating scripts can significantly assist your business:
 
-<div class="Box-sc-g0xbh4-0 iIZCet"><img alt="kikornot.png" src="https://github.com/sangvishtechnologies/dating-script/assets/161323540/a115aa32-fd93-4d6f-8d9e-9eb457e1801e?raw=true" data-hpc="true" class="Box-sc-g0xbh4-0 kzRgrI"></div>
+<img alt="filipino-girl-image-9.jpg" src="https://github.com/sangvishtechnologies/dating-script/assets/161323540/a115aa32-fd93-4d6f-8d9e-9eb457e1801e?raw=true" data-hpc="true" class="Box-sc-g0xbh4-0 kzRgrI">
 
 
 ## Customization and branding:
