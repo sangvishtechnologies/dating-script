@@ -48,8 +48,6 @@ In the competitive world of online dating, having a strong [dating script](https
 
 If you are looking for a reliable, affordable, and customizable solution to create your online dating website, then you should consider Sangvish. [Sangvish](https://sangvish.com/) provides the best dating script software solution for your business.
 
-[<div class="Box-sc-g0xbh4-0 iIZCet"><img alt="kikornot.png" src="https://github.com/sangvishtechnologies/dating-script/blob/main/image/dating-script-sangvish.jpg?raw=true" data-hpc="true" class="Box-sc-g0xbh4-0 kzRgrI"></div>](https://github.com/sangvishtechnologies/car-rental-business/commit/bdf1980f1798c575ca0b9ccf6b2ce8c8cbeb3754)
-
 Visit - https://sangvish.com/dating-script/
 
 [<div class="Box-sc-g0xbh4-0 iIZCet"><img alt="kikornot.png" src="https://github.com/sangvishtechnologies/dating-script/blob/main/image/dating-software-1.jpg?raw=true" data-hpc="true" class="Box-sc-g0xbh4-0 kzRgrI"></div>](https://github.com/sangvishtechnologies/car-rental-business/commit/bdf1980f1798c575ca0b9ccf6b2ce8c8cbeb3754)
